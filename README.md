@@ -1,1 +1,1 @@
-### Hi, I'm Lina 🍎🍏
+### Hi there 🍎🍏
